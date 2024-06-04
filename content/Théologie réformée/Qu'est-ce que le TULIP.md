@@ -1,7 +1,7 @@
 ---
 title: Qu'est-ce que le TULIP ?
 date: 2024-05-28
-lastmod: 2024-05-29
+lastmod: 2024-06-04
 ---
 ![flowers on the table](https://images.unsplash.com/photo-1586968295564-92fd7572718b?crop=entropy&cs=tinysrgb&fit=max&fm=jpg&ixid=M3wzNjAwOTd8MHwxfHNlYXJjaHwxfHx0dWxpcHxlbnwwfDB8fHwxNzE2OTI4ODc1fDA&ixlib=rb-4.0.3&q=80&w=1080)
 
@@ -54,7 +54,7 @@ L'élection a pour but de justifier des pécheurs morts dans leurs péchés et d
 
 Ceci est le point du TULIP le plus controversial. Il enseigne que le sacrifice de Jésus sur la croix a été effectué pour sauver les élus et **seulement** les élus.
 
-En effet, le salut n'a pas été rendu juste possible pour ceux qui "choisissent" de venir à Lui, car nous avons vu que n'est pas possible ([[#t--total-depravity-dépravation-totale|voir le point abordé ci-dessus]]), mais pour le salut efficace du peuple de Dieu.
+En effet, le salut n'a pas été pour tout le monde, et pour que l'on puisse "choisir" de venir à Lui, car nous avons vu que n'est pas possible ([[#t--total-depravity-dépravation-totale|voir le point abordé ci-dessus]]), mais pour le salut efficace du peuple de Dieu.
 
 Voici quelques passages pouvant prouver cela :
 
