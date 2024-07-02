@@ -1,6 +1,7 @@
 ---
 title: Bienvenue
 ---
+For english, click [here](https://redeemed-flower-en.pages.dev/)
 # Bonjour et bienvenue
 Je vous souhaite la bienvenue sur mon site.
 
