@@ -61,8 +61,7 @@ Cela signifie qu'Il a toujours été présent et en accord avec le Père et le S
 
 Cet argument, je l'ai trouvé dans un extrait d'une vidéo que j'avais vu. Une femme disait qu'elle était une "chrétienne gay" et qu'elle était le plus remplie du Saint-Esprit quand elle avait embrassé une autre femme. Elle disait également que personne ne pouvait mettre la Bible au-dessus de sa relation avec Jésus, car ce serait faire de la Bible une idole. *Intéressant.*
 
-L'une des questions que je me suis posé en voyant cette vidéo était celle-ci :
-*De quel Jésus cette femme parle-t-elle ?*
+L'une des questions que je me suis posé en voyant cette vidéo était celle-ci :<br/>*De quel Jésus cette femme parle-t-elle ?*
 
 Je suis convaincu que beaucoup de personnes voulant s'appeler "chrétiens" mais en même temps s'opposer aux commandements de la Bible finissent par, à un certain point, créer leur propre Jésus qui les laisse faire ce qu'ils ont envie de faire. Les incroyants aiment le péché et ne veulent pas l'abandonner.
 
